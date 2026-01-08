@@ -15,6 +15,8 @@ time management, leadership, adaptability, and problem-solving.
 ```
 # Education
 
+![UW Logo](https://escience.washington.edu/wp-content/uploads/2022/10/UW-square-logo.jpg)
+
 ## [University of Washington] (Seattle, Washington) - Expected Graduation: 2026
 * The University of Washington is a leading public research university known for its interdisciplinary programs and emphasis on innovation and public service.*
 
