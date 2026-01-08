@@ -15,17 +15,18 @@ time management, leadership, adaptability, and problem-solving.
 ```
 # Education
 
-## University of Washington (Seattle, Washington) - Expected Graduation: 2026
-## Bachelor of Arts in Cinema and Media Studies
-## Bachelor of  Arts in Geography
+## [University of Washington] (Seattle, Washington) - Expected Graduation: 2026
 * The University of Washington is a leading public research university known for its interdisciplinary programs and emphasis on innovation and public service.*
+
+#### Bachelor of Arts in Cinema and Media Studies
+#### Bachelor of  Arts in Geography
 
 # Work Experience (only last 10 years)
 
 ## 15059 1st Ave S, Burien, WA 98148
-*[Taco Bell Burien, Washington] Fast-food chain serving Mexican-inspired fare such as tacos, quesadillas & nachos.*
+*[Taco Bell] Burien, Washington Fast-food chain serving Mexican-inspired fare such as tacos, quesadillas & nachos.*
 
-** TacoBell Employee (Shift Lead)** (May 2025 - Sept. 2022)
+**Taco Bell Employee (Shift Lead)** (May 2025 - Sept. 2022)
 
 Provided fast and friendly customer service in a high-paced environment, ensuring order accuracy and quality
 
@@ -35,9 +36,9 @@ Provided fast and friendly customer service in a high-paced environment, ensurin
 - Assisted with cash handling and POS system operations.
 
 ## 1016 1st Ave S, Seattle, WA 98134
-*[Pro Image Sports Downtown Seattle] Local sports store that carries officially licensed sports apparel, jerseys, novelty, and hats.*
+*[Pro Image Sports] Downtown Seattle Local sports store that carries officially licensed sports apparel, jerseys, novelty, and hats.*
 
-** Pro image Sports Employee (Sales Associate)** (June 2023 - March 2025)
+**Pro image Sports Employee (Sales Associate)** (June 2023 - March 2025)
 
 Utilized in-depth knowledge of sports trends and products to support strategic sales decisions and ease customer experience.
 
@@ -47,9 +48,9 @@ Utilized in-depth knowledge of sports trends and products to support strategic s
 - Maintained store presentation and operational efficiency.
 
 ## 1201 Alaskan Wy Ste 100, Seattle, WA 98101
-* [Elliot's Oyster House] Waterfront restaurant with a bay view known for its selection of oysters & sustainable seafood.*
+*[Elliot's Oyster House] Waterfront restaurant with a bay view known for its selection of oysters & sustainable seafood.*
 
-** Line Cook (Oyster Shucker)** (May 2025 - Dec. 2025)
+**Line Cook (Oyster Shucker)** (May 2025 - Dec. 2025)
 
 Collaborate closely with kitchen staff and front-of-house to support smooth dining service and special events in a high-pressure environment
 
